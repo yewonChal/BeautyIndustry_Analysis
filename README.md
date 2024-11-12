@@ -1,0 +1,1 @@
+# Beauty_Industry_Competency_Analysis
